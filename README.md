@@ -1,1 +1,0 @@
-Mr.Jirawat Mekarun
